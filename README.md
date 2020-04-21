@@ -7,3 +7,6 @@
 Go to our wiki for more information!
 
 ![Poster](https://i.imgur.com/XIBhxEn.jpg)
+
+
+This is our video: https://youtu.be/oAvS7X-nD60.
