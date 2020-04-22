@@ -6,7 +6,7 @@
 
 Go to our wiki for more information!
 
-![Poster](https://i.imgur.com/XIBhxEn.jpg)
+![Poster](https://i.imgur.com/z4BU02k.jpg)
 
 
 This is our video: https://youtu.be/oAvS7X-nD60.
